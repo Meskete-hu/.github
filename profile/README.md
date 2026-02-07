@@ -12,6 +12,7 @@ Célunk, hogy a mesék varázslatos világa összehozza a családokat és fejles
 
 ## 📱 Kövess minket a közösségi médiában
 - 📘 **Facebook:** https://www.facebook.com/meskete/
+- ▶️ **YouTube:** https://www.youtube.com/@mesketehu
 - 📸 **Instagram:** https://www.instagram.com/meskete.hu/
 - 🎵 **TikTok:** https://www.tiktok.com/@Meskete.hu
 
